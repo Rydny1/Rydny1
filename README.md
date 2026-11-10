@@ -21,4 +21,4 @@ I build the things businesses keep saying they'll get around to, and I make AI d
 
 Some of the best work isn't public yet.
 
-[LinkedIn](https://linkedin.com/in/rydny-ihims)
+[Portfolio](https://rydny1.github.io/Rydny-portfolio/) · [LinkedIn](https://linkedin.com/in/rydny-ihims)
